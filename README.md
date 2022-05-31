@@ -1,4 +1,4 @@
-# fuck
+# fuck.
 
 - 👋 fuck.
 - 👀 fuck.
